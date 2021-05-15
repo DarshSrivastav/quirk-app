@@ -1,0 +1,1 @@
+this app is going to be extremely useful. As humans are social animals ,interaction with each other is one of the best solutions. I will build a strong communication system between the people and spread awareness .
